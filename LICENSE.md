@@ -1,4 +1,4 @@
-
+Ultimato DayZ trapaça traps é o melhor DayZ trapaça traps com sem recuo e mira automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
